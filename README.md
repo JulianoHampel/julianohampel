@@ -5,7 +5,7 @@
 
 
 
-### Tecnologias que estudo hojjje em 
+### Tecnologias que estudo hoje em dia 🫰 
   
 <div style="display inline_block"><br/> 
   
