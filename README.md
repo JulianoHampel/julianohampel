@@ -5,7 +5,7 @@
 
 
 
-### Tecnologias que estudo hoje em dia 🫰 
+### Tecnologias que estudo Hoje em Dia 👨🏻‍💻
   
 <div style="display inline_block"><br/> 
   
